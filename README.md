@@ -1,4 +1,5 @@
 # novanaditya14.github.io
 untuk Noviyanti 
 makasih yaa sudah mau meluangkan waktu kamu 
+
 Niat ku untuk komitmen adalah untuk serius denganmu, mengajakmu berjuang bersama untuk hidup berdua selamanya. Saling menjaga dan setia tanpa adanyabatasan, suka duka susah senang kita jalanin bersama dan tak kenal kata bosan. Pelukanmu adalah rumah buat aku selalu ada di samping kamu adalah zona ternyaman buat aku. Kamu adalah seseorang yang membuat aku bisa sesayang ini secinta ini terhadapa seseorang yaitu kamu. Kamu juga yang bisa membuatku overthingking karena takut di tinggalkanmu dan aku sangat takut kehilangan kamu. Mas tau mas ngelakuin kesalahan  yang membuat kamu sekecewa ini, sayang mas minta maaf, maksud mas menutupi, berbohong mas karena mas takut kehilanganmu mas ingin hubungan ini cukuo kita berdua aja yang jalanin bahagia tanpa gangguan dari pihak ketiga. Mas sudah berjanji dengan diri mas sendiri mas ubah sejua sifat yang engga kamu suka mas udah menyesuaikan buat kamu, permintaan mas cuma 1 , bisa balikan sama kamu menjalin hubungan kembali hingga menikah dan menua bersama. Mas sayang banget sama kamu
